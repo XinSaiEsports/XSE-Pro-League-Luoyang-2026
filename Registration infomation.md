@@ -1,4 +1,4 @@
--    Fill out this form to register
+-    Fill out this form to register:
 
 https://forms.gle/VDip7QP1tAZ6VLzG7
 
